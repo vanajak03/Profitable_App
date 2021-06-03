@@ -1,1 +1,1 @@
-Projects created by me Vanaja Kata
+Projects created by  Vanaja Kata
